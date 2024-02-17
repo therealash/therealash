@@ -18,4 +18,4 @@
 - 📚 Lost in the world of books.
 
 🔗 Let's connect if you have intriguing opportunities, need tech advice, or simply wish to exchange movie/book recommendations!
-📨 ashtbyte@gmail.com
+**ashtbyte[at]gmail.com**
